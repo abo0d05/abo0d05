@@ -30,5 +30,5 @@ My mission is to grow day by day and contribute value wherever I am.
 ## Get in Touch
 
 - LinkedIn: [linkedin.com/in/yourprofile](https://www.linkedin.com/in/abdallh-amra-1bb277367?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app )  
-- Email: abdallhamra97.com  
+- Email: abdallhamra97@gmail.com  
 - GitHub: [https://github.com/abo0d05](https://github.com/abo0d05) 
